@@ -5,8 +5,8 @@ If this is not being done live or you liked to read the instructions please clic
 
 ## Dante Masciotra
 
-- Im licnese Scuba Diver
+- I'm Scuba Diver
 
-## Partner Name Here
+## Megan Morse
 
-- Your sentence here
+- Lemon Grass (O_O)
